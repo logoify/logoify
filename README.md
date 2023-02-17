@@ -5,7 +5,8 @@
 
 Here are some ideas to get you started:
 
-- 🔭 I’m currently workiLogo design
+- 🔭 I’m currently working
+- Logo design
 - Graphic design
 - Flyer design
 - Business card design
